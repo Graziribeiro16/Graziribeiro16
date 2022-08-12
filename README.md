@@ -1,0 +1,4 @@
+- 👋 Olá meu nome é Grazieli de miranda ribeiro 
+- sou aluna do ensino medio integral do colegio estadual Guilherme de Almeida.
+- Minha escola esta localizado em Santa Isabel do Oeste,e pertence ao núcleo de fancisco beltrão.
+- 
